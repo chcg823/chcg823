@@ -1,0 +1,3 @@
+- 👦 Chinmai Ganesh Chittajallu
+- Preferred Nickname - **CG**
+- Software Developer
